@@ -1,2 +1,0 @@
-# proyectos_colo
-# modificacion
